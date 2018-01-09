@@ -1,2 +1,0 @@
-# vforcode
-looking for contributers
